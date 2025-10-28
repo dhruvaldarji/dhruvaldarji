@@ -1,1 +1,1 @@
-# profile
+![dhruvaldarji's GitHub Banner](https://raw.githubusercontent.com/dhruvaldarji/dhruvaldarji/main/banner.png)
